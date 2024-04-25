@@ -1,0 +1,1 @@
+Izpildiju majasdarbu haha:)
